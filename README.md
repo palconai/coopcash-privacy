@@ -1,0 +1,1 @@
+# coopcash-privacy
